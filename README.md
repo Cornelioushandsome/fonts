@@ -1,3 +1,3 @@
-#My fonts
+## All of my fonts
 
-❌ DON'T USE FOR COMMERCIAL USE.
+❌ DO NOT USE FOR COMMERCIAL USE.
